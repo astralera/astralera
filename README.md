@@ -1,4 +1,6 @@
-![120px-XC3_class_portrait_Melia](https://github.com/user-attachments/assets/64399682-7393-4caa-894a-4c64a4fb95d0)
+![](https://guiltygear.wiki.gg/images/3/33/Millia_ST_Victory.gif?20231203032808)
 
 
-https://eternalbliss.neocities.org/ come to me websites >;3 
+*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧
+
+ೃ⁀➷ [WEBSITE](https://eternalbliss.neocities.org/)
