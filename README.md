@@ -1,8 +1,7 @@
 ![](https://cdn.fireemblemwiki.org/thumb/5/50/FESAB_Genealogy_second_generation.png/800px-FESAB_Genealogy_second_generation.png?20161011231758)
 
-*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧*:･ﾟ✧
 
-ೃ⁀➷ [WEBSITE](https://eternalbliss.neocities.org/) also SIGN MY [ATABOOK](https://seliph.atabook.org)
+ೃ⁀➷ [WEBSITE](https://eternalbliss.neocities.org/) also SIGN MY [ATABOOK](https://seliph.atabook.org) and my [straw](https://seliphh.straw.page/) ? 
 
 [extended interests](https://rentry.co/keves)
 
